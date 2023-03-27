@@ -1,1 +1,1 @@
-# super-tribble
+# super-tribble Turdumbetov Erbol
